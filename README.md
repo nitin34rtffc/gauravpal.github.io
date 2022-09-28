@@ -1,1 +1,0 @@
-# gauravpal.github.io
